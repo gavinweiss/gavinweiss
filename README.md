@@ -9,6 +9,8 @@ While I understand that this may increase difficulty, I do not have the time to 
 
 You can ask me about going to the gym, health/nutrition related questions (I love these topics and am very knowledgable), and I am also very interested in personal finance!
 
+A fun fact about me is that I will be getting married this year!
+
 <!--
 **gavinweiss/gavinweiss** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
